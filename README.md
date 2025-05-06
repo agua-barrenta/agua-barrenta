@@ -7,9 +7,9 @@ meu sonho e ser modelo, fazer faculdade de direito ou odontologia, tambem preten
 
 ### Sobre mim:
 - Tenho 15 anos
--estudo desenvolvimento de sistemas
--amo animes e jogos
--insta: @delln.nt
+- estudo desenvolvimento de sistemas
+- amo animes e jogos
+- insta: @delln.nt
 
 
 ### Objetivos pro futuro
